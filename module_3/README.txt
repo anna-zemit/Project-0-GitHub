@@ -1,1 +1,1 @@
-Мой псевдоним на kaggle: Anna Novoselova
+РњРѕР№ РїСЃРµРІРґРѕРЅРёРј РЅР° kaggle: Anna Novoselova
